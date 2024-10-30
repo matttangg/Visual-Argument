@@ -1,8 +1,5 @@
-###Narrative Refelction
-When thinking about the rhetorical gaols of this work, the purpose of this is remind an audience of researchers/scientists about the importance of health communication. The narrative depicted shows a scientist finding the cure for cancer, failing to effectively communicate their findings to professionls, and lastly failing to communicate the cure to the public. This all leads to the cure for cancer being ultimately meaningless. The context in which this work will be shown is a graphic/poster in a research lab. 
+When thinking about the rhetorical goals of this work, the purpose of this is remind an audience of researchers/scientists about the importance of health communication. The narrative depicted shows a scientist finding the cure for cancer, failing to effectively communicate their findings to professionals, and lastly failing to communicate the cure to the public. This all leads to the cure for cancer being ultimately meaningless. The context in which this work will be shown is a graphic/poster in a research lab. 
 
-repitition
-alightment
-visual punning
-symboliysm
-balance
+To guide the viewer through the graphic, a variety of intentional choices were made. The graphics that compose the narrative are aligned in chronological order from left to right. The arrows drawn in are used to guide this alignment and allow the viewer to easily follow along with the story. Balance is also employed, as the graphics are "alternating" from top to bottom. Thus, there are two visuals on the upper half and two visuals on the bottom half, as this balance makes the visual impact less overwhelming. 
+
+There are also design choices that contribute to the story itself. In terms of repetition, many of the originally drawn graphics are repeated on purpose. For example, the same scientist is shown throughout the graphic to emphasize the important role that he plays in not only finding the cure but communicating it. The repetition of the cure in the vial is also intentional, as it shows the creation of the cure, the efforts in communicating it, and then it being ultimately "meaningless." This was shown through both visuals in the word "meaningless" and in the drawing itself. The broken cure at the end shows how the cure has essentially "gone to waste," as a cure is no good if professionals and the general public don't understand the science behind it. This is also shown next to the word "meaningless," and this is supposed to contribute to the symbolism of the useless cure.
